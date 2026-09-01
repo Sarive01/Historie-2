@@ -17,3 +17,5 @@ men Benne ved at hunden ikke kan tåle burgerene, så han tager bøfferne ud, hv
 Bennes far elsker burger og hamstrede flere i sig eftersom Benne havde købt for mange.
 
 Bennes hund vælger at smide alle Bennes penge på rød, imens de er i gang med at inhalere deres burgere.
+
+Hunden var ellers medlem af Rofus, men brugte Bennes ekstra account
