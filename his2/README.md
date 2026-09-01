@@ -12,4 +12,6 @@ Da Benne kom hjem for at vise hans familie pengene han har vundet, blev de helt 
 
 Selv hans hund stod med åben mund og glædet sig til mad de næste mange år
 
-men Benne ved at hunden ikke kan tåle burgerene, så han tager bøfferne ud, hvilket skuffer hunden
+men Benne ved at hunden ikke kan tåle burgerene, så han tager bøfferne ud, hvilket skuffer hunden.
+
+Bennes far elsker burger og hamstrede flere i sig eftersom Benne havde købt for mange.
