@@ -25,3 +25,5 @@ Hunden Per vinder så efter at have smidt alt på rød og står nu med 400 Milli
 Per skulle **ALDRIG** ha smidt pengene på rød, hunden går hen og taber alle pengene og går med trist snude hen til Bennes og forklarer situationen *hunden er trist*
 
 Benne bliver vred, men kun fordi han ikke forstår hvad Per siger, da Per bare bjæffer
+
+Efter at Benne har hørt på Per bjæffe i flere minutter råber han ***TIG STILLE PER!!!*** Benne havde fået nok.
