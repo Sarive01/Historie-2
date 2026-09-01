@@ -23,3 +23,5 @@ Hunden var ellers medlem af Rofus, men brugte Bennes ekstra account
 Hunden Per vinder så efter at have smidt alt på rød og står nu med 400 Millioner kroner, men fordi Hunden Per er ludoman så smider han det hele på rød igen.
 
 Per skulle **ALDRIG** ha smidt pengene på rød, hunden går hen og taber alle pengene og går med trist snude hen til Bennes og forklarer situationen *hunden er trist*
+
+Benne bliver vred, men kun fordi han ikke forstår hvad Per siger, da Per bare bjæffer
