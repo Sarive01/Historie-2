@@ -9,3 +9,5 @@ Benne havde det rigtig godt i Kolding, og havde planer om at hente burgere til h
 Han var rigtig spændt og håbede familien at de ville blive glade over overraskelsen.
 
 Da Benne kom hjem for at vise hans familie pengene han har vundet, blev de helt mundlam
+
+Selv hans hund stod med åben mund og glædet sig til mad de næste mange år
