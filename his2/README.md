@@ -19,3 +19,5 @@ Bennes far elsker burger og hamstrede flere i sig eftersom Benne havde købt for
 Bennes hund vælger at smide alle Bennes penge på rød, imens de er i gang med at inhalere deres burgere.
 
 Hunden var ellers medlem af Rofus, men brugte Bennes ekstra account
+
+Hunden Per vinder så efter at have smidt alt på rød og står nu med 400 Millioner kroner, men fordi Hunden Per er ludoman så smider han det hele på rød igen.
