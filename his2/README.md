@@ -1,9 +1,11 @@
-# Historie-2
+# $$Benne$$
 
 Der var en gang
 
 En lille dreng, som hed Benne
 
-Benne havde det rigtig godt i Kolding, og havde planer om at hente burgere til hele familien, da han havde vundet 200000000 i lotto dagen før
+Benne havde det rigtig godt i Kolding, og havde planer om at hente burgere til hele familien, da han havde vundet 200.000.000 i lotto dagen før
 
 Han var rigtig spændt og håbede familien at de ville blive glade over overraskelsen.
+
+Da Benne kom hjem for at vise hans familie pengene han har vundet, blev de helt mundlam
