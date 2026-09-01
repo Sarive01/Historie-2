@@ -27,3 +27,5 @@ Per skulle **ALDRIG** ha smidt pengene på rød, hunden går hen og taber alle p
 Benne bliver vred, men kun fordi han ikke forstår hvad Per siger, da Per bare bjæffer
 
 Efter at Benne har hørt på Per bjæffe i flere minutter råber han ***TIG STILLE PER!!!*** Benne havde fået nok.
+
+Benne vælger at gå ind på værelset i tristhed
